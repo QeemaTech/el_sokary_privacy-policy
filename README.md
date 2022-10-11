@@ -1,1 +1,0 @@
-# el_sokary_privacy-policy
